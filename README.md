@@ -5,7 +5,7 @@
 
 - 📫 How to reach me: **aaa830714@gmail.com**
 
-- ⚡ Fun fact: **I'm a triathlon (🏊🚴🏃 woooooow)**
+- ⚡ Fun fact: **I'm a triathlete (🏊🚴🏃 woooooow)**
 
 <h3>Languages and Tools:</h3>
 <p> 
